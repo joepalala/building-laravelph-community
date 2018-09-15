@@ -1,0 +1,5 @@
+- creating a community since 2013 (story)
+- keeping audience engaged on facebook (show sample posts)
+- sample meetups
+- improvement ideas
+- recruitment
